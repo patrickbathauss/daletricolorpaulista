@@ -1,3 +1,3 @@
 ### Boas vindas ao perfilzão do geloca 💚
 
-👀 Gosto de ###**homem**.
+👀 Gosto de **homem**.
